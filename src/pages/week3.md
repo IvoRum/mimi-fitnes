@@ -6,7 +6,7 @@
 
    4kg-10/10/10
 
-   ![image.png](/Week%203%207717fad6190a4a8397f3f240a37e2a12/image.png)
+   ![image.png](ivorum.github.io/mimi-fitnes/Week%203%207717fad6190a4a8397f3f240a37e2a12/image.png)
 
 2. Reverse fly
 
